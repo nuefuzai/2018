@@ -1,6 +1,16 @@
-# 2018
-Nuefuzai videos 2018 series
+# 虐腹仔视频 2018系列
+极限腹肌锻炼视频，仅供交流学习  copyright @nuefuzai videos
 
+（1）精编版视频11部合集，共RMB36，购买加微信nuefuzai附备注
+
+![](https://upload-images.jianshu.io/upload_images/11064440-ccbe787d1dc12d42.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+
+（2）完整版视频均为美金24/部，折合RMB168，购买加微信nuefuzai附备注
+
+虐腹仔 VS 夏系列：共3部。精壮型，唯一一部浴缸虐腹系列，腹肌击打声音、男人沉吟声、水花声，视觉与听觉的享受。
+
+虐腹仔 VS 夏 第三部 13分钟：极限踩踏、骑脸击打腹肌，呻吟声性感
 ![](https://upload-images.jianshu.io/upload_images/11064440-b0d50a619c538357.GIF?imageMogr2/auto-orient/strip)
 
 
