@@ -9,7 +9,7 @@
 
 
 ### 【最新】虐腹仔 VS 旭系列：肌肉战士
-> 虐腹仔 VS 旭 第一部 11分钟：成为肌肉坐垫奴，虐到求饶，踩踏、击打、抬腰骑坐
+> 虐腹仔 VS 旭 第一部 11分钟：成为肌肉坐垫奴，虐到求饶，踩踏、击打、抬腰骑坐（特别版，RMB398）
 ![](https://upload-images.jianshu.io/upload_images/11939870-d2e32c247872886f.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 ![](https://upload-images.jianshu.io/upload_images/11939870-adb0cf96b5f3652d.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 ![](https://upload-images.jianshu.io/upload_images/11939870-18cd642bf955bc81.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
