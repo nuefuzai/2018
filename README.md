@@ -8,7 +8,13 @@
 >（2）完整版视频均为美金24/每部，折合RMB168，购买加微信nuefuzai附备注。买任意完整版，可以送精编版
 
 
-### 【最新】虐腹仔 VS 山系列：共1部。精壮型，赛车手，特别耐踩和耐揍。
+### 【最新】虐腹仔 VS 旭系列：肌肉战士
+> 虐腹仔 VS 旭 第一部 11分钟：成为肌肉坐垫奴，虐到求饶，踩踏、击打、抬腰骑坐
+![](https://upload-images.jianshu.io/upload_images/11939870-d2e32c247872886f.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![](https://upload-images.jianshu.io/upload_images/11939870-adb0cf96b5f3652d.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![](https://upload-images.jianshu.io/upload_images/11939870-18cd642bf955bc81.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+### 虐腹仔 VS 山系列：共1部。精壮型，赛车手，特别耐踩和耐揍。
 > 虐腹仔 VS 夏 第一部 22分钟：极限踩踏、击打，双脚任意踩踏
 ![](https://upload-images.jianshu.io/upload_images/11939870-a604c3c67942b9df.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 ![](https://upload-images.jianshu.io/upload_images/11939870-bd3791f73209266d.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
