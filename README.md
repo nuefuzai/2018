@@ -13,6 +13,7 @@
 ![](https://upload-images.jianshu.io/upload_images/11939870-d2e32c247872886f.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 ![](https://upload-images.jianshu.io/upload_images/11939870-adb0cf96b5f3652d.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 ![](https://upload-images.jianshu.io/upload_images/11939870-18cd642bf955bc81.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![](https://upload-images.jianshu.io/upload_images/11939870-e5f2551a543b2cbf.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
 ### 虐腹仔 VS 山系列：共1部。精壮型，赛车手，特别耐踩和耐揍。
 > 虐腹仔 VS 夏 第一部 22分钟：极限踩踏、击打，双脚任意踩踏
