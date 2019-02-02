@@ -1,6 +1,6 @@
 ## 肌肉模特拷打
 
-> 虐腹 vs 小李：长得很像泰坦尼克小李子的模特，被脱光虐腹，击打，共
+> 虐腹 vs 小李：长得很像泰坦尼克小李子的模特，被脱光虐腹，击打，共12分钟
 ![](https://upload-images.jianshu.io/upload_images/11939870-54dcf8c6ec15e561.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 ![](https://upload-images.jianshu.io/upload_images/11939870-e4a89cef172622af.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 ![](https://upload-images.jianshu.io/upload_images/11939870-4ac14e12bb709676.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
