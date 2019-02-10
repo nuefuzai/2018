@@ -1,5 +1,8 @@
 ## 虐腹仔视频 2018系列
-极限腹肌锻炼视频，仅供交流学习  copyright @nuefuzai videos
+极限腹肌锻炼视频，仅供交流学习 。
+所有视频均为原创，且模特同意公开。
+版权归虐腹仔所有，未经允许禁止分享。
+copyright @nuefuzai videos。
 
 >（1）精编版视频11部合集，一共15分钟，RMB36，购买加微信nuefuzai附备注
 ![](https://upload-images.jianshu.io/upload_images/11064440-ccbe787d1dc12d42.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
