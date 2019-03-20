@@ -27,7 +27,7 @@ copyright @nuefuzai videos。
 
 ### 168元档
 ### 虐腹仔 VS 山系列：共1部。精壮型，赛车手，特别耐踩和耐揍。
-> 虐腹仔 VS 夏 第一部 22分钟：极限踩踏、击打，双脚任意踩踏
+> 虐腹仔 VS 山 第一部 22分钟：极限踩踏、击打，双脚任意踩踏
 ![](https://upload-images.jianshu.io/upload_images/11939870-a604c3c67942b9df.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 ![](https://upload-images.jianshu.io/upload_images/11939870-bd3791f73209266d.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
