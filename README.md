@@ -1,4 +1,4 @@
-## 虐腹仔视频 2018系列
+## 虐腹仔视频 2019系列
 极限腹肌锻炼视频，仅供交流学习 。
 所有视频均为原创，且模特同意公开。
 版权归虐腹仔所有，未经允许禁止分享。
@@ -10,20 +10,6 @@ copyright @nuefuzai videos。
 
 >（2）完整版视频一部RMB168，购买加微信nuefuzai附备注。买任意完整版，可以送精编版
 
-
-### 398元档
-【最新】虐腹仔 VS 旭系列：肌肉战士
-> 虐腹仔 VS 旭 第二部 17分钟：拳击、铁棍拷打，捅肚脐，虐到求饶（特别版，RMB398）
-![](https://upload-images.jianshu.io/upload_images/11939870-523acfd332020d61.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
-![](https://upload-images.jianshu.io/upload_images/11939870-9a922bca4844d4a8.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
-![](https://upload-images.jianshu.io/upload_images/11939870-a73494b0b96e0ede.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
-![](https://upload-images.jianshu.io/upload_images/11939870-235b964ffb20bbb3.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
-
-> 虐腹仔 VS 旭 第一部 11分钟：成为肌肉坐垫奴，虐到求饶，踩踏、击打、抬腰骑坐（特别版，RMB398）
-![](https://upload-images.jianshu.io/upload_images/11939870-d2e32c247872886f.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
-![](https://upload-images.jianshu.io/upload_images/11939870-adb0cf96b5f3652d.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
-![](https://upload-images.jianshu.io/upload_images/11939870-73a785a99cd9c963.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
-![](https://upload-images.jianshu.io/upload_images/11939870-e5f2551a543b2cbf.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
 ### 168元档
 ### 虐腹仔 VS 山系列：共1部。精壮型，赛车手，特别耐踩和耐揍。
@@ -85,3 +71,17 @@ copyright @nuefuzai videos。
 ![](https://upload-images.jianshu.io/upload_images/11064440-82aad24f5059ee1f.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 ![](https://upload-images.jianshu.io/upload_images/11064440-ccf3a3b19ea613ab.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 ![](https://upload-images.jianshu.io/upload_images/11064440-899ddb5b2faa6aea.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+### 398元档
+【最新】虐腹仔 VS 旭系列：肌肉战士
+> 虐腹仔 VS 旭 第二部 17分钟：拳击、铁棍拷打，捅肚脐，虐到求饶（特别版，RMB398）
+![](https://upload-images.jianshu.io/upload_images/11939870-523acfd332020d61.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![](https://upload-images.jianshu.io/upload_images/11939870-9a922bca4844d4a8.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![](https://upload-images.jianshu.io/upload_images/11939870-a73494b0b96e0ede.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![](https://upload-images.jianshu.io/upload_images/11939870-235b964ffb20bbb3.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+> 虐腹仔 VS 旭 第一部 11分钟：成为肌肉坐垫奴，虐到求饶，踩踏、击打、抬腰骑坐（特别版，RMB398）
+![](https://upload-images.jianshu.io/upload_images/11939870-d2e32c247872886f.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![](https://upload-images.jianshu.io/upload_images/11939870-adb0cf96b5f3652d.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![](https://upload-images.jianshu.io/upload_images/11939870-73a785a99cd9c963.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![](https://upload-images.jianshu.io/upload_images/11939870-e5f2551a543b2cbf.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
